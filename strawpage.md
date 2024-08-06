@@ -1,1 +1,171 @@
+# dni
+- over 20+
+- bullies my favourite characters/interests (if its as a joke then its fine!!!!)
+- honobono likers
+- you dont respect boundaries or opinions
+- IF YOU KNOW ME IRL THAT TOO (EXCEPT CLOSE FRIENDS)
+- HATERS AND HATERS OF FOODFIGHT!!!!!
+- ryst juniors x seniors shippers
+- kuroteto shippers
+- just dont be a fucking freak man
+- pretty much just the general criteria man idk.
+- proship, profic, any kind of the sort
+- anti-rare pair
+- judge others for no reason :/
+- -13
+- ZI0NISTS. get the fuck away from me.
+- hate on my favs and hyperfixes
+- TDR
+- TDI
+- ANTI FURRIES
+- ENDO SYSTEMS
+- People who can’t act there age
+- n ppl who lie 
+- dsmp enjoyers (sorry)
+- kpop enjoyers (not that sorry)
+- people who stick their nose too far up my ass
+- your dad (he doesnt know im doing ur mom and i cant let him find out)
+- Helluva boss/Hazbin hotel fans 
+- Vivzie pop fans
+- fake claimers
+- irls
+- vicatation SA blue story "fandom"
+- wilbur soot forgivers/defenders
+- alfreds playhouse
+- YBC fans
+- MHA fans
+- Dream stans
+- Georgenotfound fans
+- SWIFTIES
+- SHEDTWT!!!!
+- transphobes and proshippers dni!
+- i HATE (canon) stalker poe believers.
+- i dislike dount jokes abt ranpoe and jokes abt ranpo being 6
+- its not that deep if i block you especially if we don't know each other
+- 18+
+- onlyoneof antis
+- mygo haters
+- twice antis other than that idrc !!
+- dad
+- BTD FANS
+- endogenic systems
+- sukunaxyuji
+- sukunaxmegumi shippers
+- proshippers in general
+- megastar
+- sukugo
+- tojigo
+- tojisugu
+- shippers
+- take ponytown way too seriously, i promise you're gonna be okay
+- makima superfans
+- toxic ppl
+- if you only vent
+- dry
+- preppy humor
+- traumadumpers
+- 18+ accs
+- TERF's
+- Anti mogai/xeno
+- Israeli supporters
+- people who make fun of special interests
+- OSC
+- lea michele & jonathan groff stan
+- don't like glee, naya, or cory
+- ships real people/assumes their sexuality
+- nsfw accounts..
+- jasper 
+- dont be a dick thats it
+- People who take advantage of others because they’re Neurodivergent / mentally ill and other things
+- under 10, over 30
+- tulpas/endo systems
+- drugtwt
+- edgelords
+- gatekeepers
+- if ur an asshole
+- mcr fans
+- winter haters
+- my ex-boyfriend(s)
+- lawlu shippers
+- patrick kane / vince dunn / jordan binnington fans
+- edgys
+- "everything is cringe" person.
+- omori
+- dsmp
+- tbhk
+- tcoaal
+- racist
+- femboys
+- pyro mains
+- 11 or under
+- mlp
+- 12 or under
+- reality checkers
+- just creeps in general
+- NSFW
+- Killing Bio211 is okay when permitted
+- I hate problematic people
+- I don’t like lairs
+- I absolutely HATE the skull emoji, It’s not 2020 get a grip
+- I hate hazbin hotel bc the fandom is too big and there’s so many cringe and just second hand embarrassment from there but idc if your in that fandom, don’t shove some stupid stuff of it in my face
+- Gr00mers 
+- wilbur supporters
+- megan thee stallion haters
+- bkdk shippers
+- previous drama with me
+- rcta
+- countryhuman/hetalia fans
+- alfreds playhouse fans/creator defenders
+- 18+
+- irls
+- stalkers/dir
+- refuses to put tw's
+- dni if you hate on furries and LGBTQ for no reason
+- None of that weird shit man. You know who are are
+- If you’re mean DONT SPEAK TO MEEEE
+- you’re dds
+- bbm apologist
+- bodyshamer and faceshamer.
+- Ped0s
+- Dry ppl
+- Racist ppl
+- Cat haters
 
+# byf
+- i use lots of dots after a sentance
+- always text in caps
+- i make many typos
+- ill be kinda awkward at first
+- i love to yap about my favourite characters/interests/ships/songs
+- Romantic Tsukasa x Knights makes me extremly uncomfrotable
+- heavy attachment to natsume often refering myself as him 
+- can be very negative at times
+- very akward at interact im sorry i promise i dont bite
+- i have dark humor so i may make some stupid jokes but if you ever feel uncomfortable just lmk and I'll stop!
+- I may be shy at first but I'll get more comfy the more we talk
+- i make nsfw jokes about characters
+-  i dont use tonetags unless asked
+- i make kys jokes
+- multishipper
+- may partake in discourse
+- fanfic writer
+- i spam a lot
+- NOT SPOILER FREE
+- you fail to meet the requirement to talk to me!!!
+- •If u can't handle a heart like mine don't waste ur time w me -Melanie Martinez!!!
+- I have a hard time talking/communicating with people
+- I make kys/kms jokes..
+-  dont have the best memory and I’m a liiittle slow so please be patient~
+- I am horrifically mentally ill, and struggle to socialize with strangers or even my friends. Please be patient!
+- 17+ preferred
+- nsfw/dark themes 🪦🕊️
+- no tws/cws
+- i draw/follow whatever i want
+- i do not tag or play into irls/das
+- i draw noncon and animal penis
+
+# thin ice
+- furries
+- 20-39
+- play roblox over 15
+- if youre under 14
