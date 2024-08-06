@@ -30,8 +30,6 @@
 * people who use fonts for aesthetics
 * any SMP fan (unless close) 
 * Newsies fans
-* anyone who HC’s canonically/implied achillean characters as transwomen / canonically/implied sapphic characters as transmen 
-* people who hate any of my (fictional) hyperfixations/spintrests
 
 # byf
 * i am bodily a minor, despite being 21 alter wise.
