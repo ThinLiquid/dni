@@ -10,4 +10,4 @@
 **[<kbd> <br> tumblr.com <br> </kbd>](https://github.com/ThinLiquid/dni/blob/main/tumblr.md)**
 
 ## contributing
-make an issue
+make an issue, or if your skilled; a pull request.
