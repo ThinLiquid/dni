@@ -1,5 +1,5 @@
 ---
-name: Card
+name: Carrd
 about: add carrd.io dnis and byfs
 title: ''
 labels: carrd
