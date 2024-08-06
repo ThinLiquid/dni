@@ -34,12 +34,24 @@
 * people who hate any of my (fictional) hyperfixations/spintrests
 
 # byf
-i am bodily a minor, despite being 21 alter wise.
-do not use they/them or she/her on me at all.
-i use ttgs and would appreciate them used on me, but if needed, you can clarify your tone through words instead of ttgs.
-when replying to me, turn pings off unless specified to ping when replying. pings hurt my eyes, make the message difficult for me to read, and make me a bit anxious.
-i cannot see very well, and am also dyslexic.
-i have autism and bpd, which interferes with my day to day life and how i interact with those around me.
-iwc with me at all times.
-i say slurs i can reclaim, make kys / jump jokes, and use baby talk while regressed. if any of these make you uncomfortable, please bring this up to me and i won't do these things around you.
-i am a tsukasa tenma introject if that wasn't clear by now.
+* i am bodily a minor, despite being 21 alter wise.
+* do not use they/them or she/her on me at all.
+* i use ttgs and would appreciate them used on me, but if needed, you can clarify your tone through words instead of ttgs.
+* when replying to me, turn pings off unless specified to ping when replying. pings hurt my eyes, make the message difficult for me to read, and make me a bit anxious.
+* i cannot see very well, and am also dyslexic.
+* i have autism and bpd, which interferes with my day to day life and how i interact with those around me.
+* iwc with me at all times.
+* i say slurs i can reclaim, make kys / jump jokes, and use baby talk while regressed. if any of these make you uncomfortable, please bring this up to me and i won't do these things around you.
+* i am a tsukasa tenma introject if that wasn't clear by now.
+* i tend to hyperfixate on things that interest me and they often distract me.
+* my spins are project sekai, vocaloid, d4dj, psychology, acnl and NSO. i tend to info dump about my hyperfixations a lot.
+* i may regress involuntarily while talking about them.
+* do not flirt with me jokingly unless close, nor at all in general. it makes me and my partners uncomfortable.
+* i may randomly send pictures of my nesoberi.
+* i might retweet abt greek stuff once in a while
+* i type too fast and dont look at what i type,
+* i love being a hater
+* i dont normally use tonetags or tws/cws so if u want me to abt smth specific, tell me!
+* dont take anything i say seriously, im always joking abt stuff
+* anyone who HC’s canonically/implied achillean characters as transwomen / canonically/implied sapphic characters as transmen 
+* people who hate any of my (fictional) hyperfixations/spintrests
