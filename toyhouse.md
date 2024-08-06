@@ -132,7 +132,6 @@ if you come here to message me or contact me in any form in support of them or b
 - you support problematic creators (shane dawson, dream, etc)
 - you sexualize kids / teens in media (idc if you age them up youre disgusting)
 - ummmmmmm dni weirdos n shit also dni if u make phighting nsfw like idgaf if its ur phighting ocs just dni, like I get that 'oh that's stupid' but like it makes me uncomfortable asf so why not do us both a favor and just dni lol! 
-j DNI is pretty straightforward, DNI if u pray to the ancient gods to rain hellfire upon this world of sin, DNI if ur cursed by the amulet (annoying af), DNI if ur just here to bug me about the prophecy like I get it I gotta save the world but can't u have a little me time Jesus fuck
 - if you hate tankmen (or any of my sp/ins tbh), call people delusional without permission, against (NON-harmful) xenogenders/neopronouns, anti-IRL/justme, racist (towards ANY race), supporters of Israeli government
 - I block people who make me angry for the sake of my mental health. This includes people with double standards or people who have ‘DNI if you do/like [insert harmless thing]’ in their bio, get out of here I do not like you not one little bit 
 - Pedophiles or pedo supporters. - This goes with pro shippers too, get the fuck off my page and away from me. 
@@ -282,4 +281,8 @@ That's because I'm busy a lot, plus sometimes it's a little hard on my arm/wrist
 - generally I don't require tone indicators but they are nice to have sometimes! ^^ so if you like to use them, feel free to continue with me, but if you don't use them, don't worry about using them!
 - I don't enjoy jokes that make fun of people/me, even if they're 'friendly' mocking or 'friendly' name calling. please don't use them around me! ^^"
 - I get anxiety around watermarks/credit! I like my work to be watermarked and credited so please understand if I don't want to send an unwatermarked or dm asking for credit somewhere.
+
+# joke dni
+j DNI is pretty straightforward, DNI if u pray to the ancient gods to rain hellfire upon this world of sin, DNI if ur cursed by the amulet (annoying af), DNI if ur just here to bug me about the prophecy like I get it I gotta save the world but can't u have a little me time Jesus fuck
+
 - if you change your pfp/icon to something related to anything on the list below, I may stop talking to you/interacting with you until you change it- I won't ask for you to change it cos like-- it's up to you, but if it makes me uncomfortable I'll probs stay away ^^'
