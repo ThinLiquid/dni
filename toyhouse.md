@@ -1,0 +1,285 @@
+# dni
+- you meet general dni criteria (are a pedophile, terf, anti-lgbtq+, etc)
+- PROSHIPPERS/ANTI-ANTI/WHATEVER. YOU WILL BE BOILED
+- you are or you support """bi/pan/mspec lesbians"""- lesbian who has been attacked in my real life on the basis of being a lesbian here ! stop it :) get away from me. youre not welcome here.
+- dsmp fans/stans
+- weird genshin fans (excuse things like racism, dickride mihoyo, excuse l*li content, defend shit like blackface- example being that one genshin cosplayer who did blackface, call black genshin fans chronically online and/or sensitive for being uncomfortable with racism, etc. go away FREAK)
+- elon musk fans 🤓
+- active boyfriends webtoon supporter... its not just bc i dont like the creator lol
+- ai art supporters, nft supporters, cryptobros, techbro types, YOU ALL ARE SO ANNOYING😭😭😭 
+- romanticize killers, mental illnesses, etc. weirdo
+- you are racist and do not support blm
+- you are here to steal/trace my art and characters
+- you are a zoophile, pedophile, etc and think that r*ping animals and kids is okay. ive had some of you freaks come to me and try to moral grandstand about how i should actually be nice to pedos and zoos despite both being a minor (at the time) and being a csa survivor. there are absolutely no exceptions to this. in the clearest way possible, i hope you all die.
+- feral nsfw artists....🤢
+- you are an abuser of any kind/support abusive people/media
+- you support alias/birdie/kittydog/any of those freaks really 
+- you are/are friends with anyone going by the name of "alexxislol" on ANY social media site. fuck off.
+- you are/are friends with and actively defend these people: BonelyBuzzard, GrellSimp (dont think she has th but im not taking chances), and enderslappers/etc (again dont think she has th either but i dont give a fuck). they all abused me , as well as enabled and abetted my abuse for YEARS. i hate you all and im never going to speak to any of you or your shitty friends ever again- i say this here since (even if it was a LONG time ago), for not apologizing for being rightfully upset at one of them, her friends decided to fucking THREATEN TO SWAT ME at the ripe old age of 12 years old, and CONTINUE to coddle all of them, but especially her. you people are sick and twisted, and i hope you all never find happiness or any sort of good connection to anyone ever again. fuck you guys, and fuck your weird old-ass canadian friends, too.
+if you come here to message me or contact me in any form in support of them or because you are one of them, you will be instantly ip-blocked and reported for harassment, no exceptions. im not fucking taking any chances. you are ALL depraved.
+- you publicly engage in ddlg (sfw age regression is valid and fine <3)
+- you are anti-kin
+- think whitewashing is okay/think blackwashing is real
+- have an issue with black coded characters and will have an issue with me black coding designs i own
+- you are under the age of 13
+- you continually steal and trace art and characters
+- Basic dni. If you’re homophobic/transphobic/proship/etc. (Feral art counts for this you’re weird.)
+- Think age regression is weird or “sexual”
+- Under 13
+- Fakeclaim peoples mental illness for any reason whatsoever. Including self diagnosis. (self diagnosis is 70-80 percent accurate <3) ((this is coming from someone who IS diagnosed with autism.))
+- You think big character amount = character hoarding.. i have a metric fuck ton of ocs and i love them all. just cause someone doesn’t have 57 drawings and a fully coded profile doesnt mean they aren’t loved…  i make most of my stuff in my head and im lowkey lazy so its not immediately clear on th profiles.
+- I’ve blocked you. I’d be willing to sort it out in most cases if you can have a friend dm me for you. do not block evade.
+- Homophobic
+- Transphobic
+- Racist
+- Zionist
+- A zoophile
+- A proshipper/anti-anti
+- A proship supporter
+- Pro-life
+- Aphobic [against asexuals/aromantics]
+- Anti-BLM
+- Sexist
+- a TERF
+- "Supergay" or "superstraight" or anything along those lines
+- [it's ok if you interact with caution] A DSMP fan/stan.  You are allowed to interact if you do not talk about it on my profile, I don't agree with the fandom and the creators. Hardcore/toxic fans/stans are not welcome.
+- A supporter/reader of the "Boyfriends" webtoon. 
+- Anti agere/petreg, or sexualize those
+- You like loli/shotacon
+- If you sexualize queer relationships (previously I said yaoi/Yuri enjoyers dni but I want to make it more clear. If you oversexualize gay relationships to the point where you view it as a kink, and you have no respect for actual queer people, DNI with me, please.)
+- You sexualize people's OCs without permission :(
+- Basic DNI criteria: LGBTQphobic/queerphobic, racist, ableist, sexist, pro-shipper, MAP, etc.
+- If you buy/sell AI generated adopts/art.
+- If you hate DNI lists and/or trigger warnings.
+- You are racist or homophobic
+- You believe in "pansexual lesbians" or any of the sort
+- You are a pedo or zoophile, partake in loli/childbait pornography or digitigrade anthro/feral furry pornography
+- You hate any of my close friends or are only intending on talking to me to shit talk them
+- You are a DSMP stan (excludes liking the creator outside of DSMP like Philza, Techno or Jschlatt)
+- You factkin (kinning real life people. This goes for youtubers with online personas too.)
+- You actively support people like Joycawn, Tofubee, Sashley, Kittydog etc
+- You are friends with anybody on my blacklist
+- P3d0s
+- Proshippers
+- DSMP fans
+- OKEGOM/IDATE FANS, DNI. /SRS
+- DNI IF UR A SH0TA/SH0TACON!!!! OR L0LI/L0LICON
+- Minimal interaction from Omori fans, pls! The creator literally fetishized him and is a sh0tacon.
+- Don't call any of my characters femboys or anything else gross man lol
+- DNI if you’re an OC hoarder. Like hundreds of unused OC’s you’re keeping for designer clout. 💀 DNI if you literally hoard OC’s in your “offlimits” folder and they don’t even have names. 💀💀💀 Literally not using them and just keeping them for clout so people that actually want them and would care for them a lot can’t have them. 💀💀 LOL Please let them go to a better home bro.
+- DNI if you’re +30 or <16 unless i knew you beforehand
+- Anti-lgbtq+, "LGB without the T" supporters, anti-neo/xenopronouns, xenophobes, zionists/purposefully "neutral", zoophiles/“zoosexuals”, feral/"anatomically correct" NSFW artists, pedophiles/“maps”/“nomaps”, necrophiles, racists, sexists, anti-abortion, ableists, nazis, draw/indulge in snuff content (gore NSFW, NSFW of decomposed corpses, etc), consume irl gore, etc.
+(basically just dont be a weird or shitty person)
+- Use the word 'retard' as a neurotypical
+- Fake disorders/medical conditions - claim to have disorders/conditions you don't have.
+- Profile filled with or has mentions of political propaganda or irl politics
+- ENTIRELY NSFW accounts, if your account is just for NSFW, please swap to a SFW acc. or dni.
+- DSMP stans or anyone who supports problematic people in DSMP
+- Force your religion onto others. 
+- The basic shit
+- Zionists/In support of israel
+- Radqueer
+- Proship/comship
+- 18+ or NSFW accs (I'm a minor)
+- You hate my interests (Its fine if your nice abt it)
+- If you like the coffin of andy and leyley (makes me VERY uncomfortable)
+- If you use typing quirks (it's difficult for me to read them so if you do use them pls dont use them when your speaking to me!/gen)
+- If you support dream (idc if u like dsmp as long as you don't support dream)
+- if you're a pedo, homophobe, racist, zoo, etc, sorta a given but like 
+- if you're a super weird Stan of something like dream smp, anime, kpop, AND THAT DOESN'T INCLUDE NORMAL FANS OR HYPERFIXATIONS Y'ALL ARE GOOD MWAH MWAH
+- If you have a history of tracing or stealing oc's / not crediting artists (gtfo) 
+- Have a lot of MLP Gen 5 stuff on your account, I am okay with gen 4 but Gen 5 is a massive trigger for me, as I have issues with change due to trauma and this triggers it heavily
+- Like/Support/Watch Hazbin Hotel or Helluva Boss knowing the dogshit choices Vivzipop has made. DO NOT INTERACT WITH ME. 
+- If you have ALTERS from the show but do not support/watch/like it THATS FINE you can't control that. 
+- DNI if you have bad intentions
+- DNI If pedo, zoo, basic bad stuff
+- You may view my page if ur 21+ but please dont interact with me (unless ur an inspo)
+- basic dni criteria that everyone knows yeah
+- also dni you block fandoms for non-personal reasons/rumors
+- not a dni but i like HoYoVerse, Devsisters games so uh yeah
+- Basic DNI. [proship, lgbtqphobic, zoos, MAPs, etc]
+- I am a minor. If you have any 18+ content on your profile that is not properly filtered, dni.
+- the fit basic dni criteria [Pretty easy to guess what this means- like racist, antisemitic, homophobic, transphobic, sexist, you get the idea.]
+- Proshippers / other labels for obvious enough reasons 
+- Extremely into drama/discourse, or if you're here to talk to me about it. 
+- Bully/Look down on people for being in a 'problematic' fandom. [Almost everything is problematic in some way anyways, most of you like this are hypocritical.]
+- You are racist, homophobic, transphobic, anti-blm, ableist, pro-shipper, nazi, zoophile, pedophile, pro-life and/or pro-endogenic / non traumagenic "systems". I do not want you here, none of this is up for debate.
+- Also don't interact if you are against xenogenders or neopronouns
+- DSMP and Rick and Morty make me very uncomfortable, I do not care too much if you enjoy the content, just please do not discuss them with me or interact if they are a big part of your account.
+- P3d0philes, z00philes, gr00mers, transphobic, homophobic, etc. Just the basic DNI stuff. 
+- under the age 13
+- Over the age 25 ( unless doing art related business.)
+- cancel/cringe culture dni i dont want shitty drama and stuff on my profile
+- weird ass people dni I don't think I have to list you guys off you're on like this entire sites dni list
+- and if yk who u are (cough cough stalkers COUGH)
+- Support Transphobia / Racism / Abelism / Homophobia / Incest / Zoophilia
+- General DNI criteria, just don't be a freak.
+- Do not try to befriend me if you are under 18. Please respect this wish.
+- IDC what you like just don't be a weirdo about it
+- Against neopronouns. I use the star/stars pronoun set.
+- russian supporters, transphobes, queerphobes, ablelist, terfs, proshippers, maps, anti self diagnose
+- do not contact if you are under 13 years old, I do not feel very comfortable
+- BASIC DNI CRITERIA
+- HEAVILY AND/OR OPENLY RELIGIOUS (not personal: just makes me uncomfortable)
+- are just here to like… stir up old drama or remind me something bad that happened a time ago- hopefully i’ll already have you blocked but if you block evade or whatever, consider this your final warning, i do not wanna hear about it!!
+- your dni has anything like "dni if your diagnosed with [x disorder, illness]" and/or "dni if you are/go by [x gender, pronouns, sexuality, nationaliy, (are in) x country, look like [x] ]" and also "dni if furry"cause what the...... bro??? these are normal people??? and "dni if ur weird" bro shut up weirdos are awesome (out of ones ive met) people i love my "weird" friends (not including zoos and pedos/"maps", they are weirdos, more creeps and fucking disgusting.) WAIT THIS MAKES IT LOOOK LIKE I AM FREINDS W THESE PEOPLE KINDA i worded it weird i do not know how to fix that currently SOBS i do not associate myself with htese people, other than shaming them if i ever meet them. 
+⌫ You are Anti-LGBTQ+, exclude asexuals and aromantics or hate on any trans person.
+⌫ You are a mursuiter, Pro-shipper, Pedo (MAP) or Zoo.
+⌫ DNI if you Support anyone who fits these criterias (even if your somebody who don't believe somebody like that is bad), fakes mental illnesses for popularity or supports NFTs.
+⌫ If your a scammer / oc theif / colour picker (colour picks every colour from a specific oc they love).
+- you are younger than 13
+- proshipper, zoo, lgbtphobe, pro-ED/pro-ana, TERF/SWERF, transmed, anti-neo pronouns, anti-kin, etc.
+- you support problematic creators (shane dawson, dream, etc)
+- you sexualize kids / teens in media (idc if you age them up youre disgusting)
+- ummmmmmm dni weirdos n shit also dni if u make phighting nsfw like idgaf if its ur phighting ocs just dni, like I get that 'oh that's stupid' but like it makes me uncomfortable asf so why not do us both a favor and just dni lol! 
+j DNI is pretty straightforward, DNI if u pray to the ancient gods to rain hellfire upon this world of sin, DNI if ur cursed by the amulet (annoying af), DNI if ur just here to bug me about the prophecy like I get it I gotta save the world but can't u have a little me time Jesus fuck
+- if you hate tankmen (or any of my sp/ins tbh), call people delusional without permission, against (NON-harmful) xenogenders/neopronouns, anti-IRL/justme, racist (towards ANY race), supporters of Israeli government
+- I block people who make me angry for the sake of my mental health. This includes people with double standards or people who have ‘DNI if you do/like [insert harmless thing]’ in their bio, get out of here I do not like you not one little bit 
+- Pedophiles or pedo supporters. - This goes with pro shippers too, get the fuck off my page and away from me. 
+- Dsmp antis (unless you're respectful). - Y'all who aren't respectful suck ass. Children in the fandom are committing suicide, and being harassed by grown-ass adults or teenagers who should know better. (And a note, antis who are hypocritical by saying dni to the dsmp, but not any other fandom with problematic creators/people)
+- People who tell people to Kill themselves. - Y'all are horrible people, and I genuinely despise you guys. (EDIT: Especially if you're fuckin harassing someone over a fandom/ship. I keep hearing about people who do this shit and how sometimes people actually go through with it. So in my eyes, anyone who does that and the person does it, they have blood on their hands in my eyes.)
+- Abelist/Racist/Homophobic/Transphobic/Xenophobic people. - Y'all are awful, and I hope y'all stub your toes on a brick. 
+- Zionists - Fuck off. 
+- People against Neogenders & pronouns. - Gender is a social construct, it doesn't matter that much. 
+- Prolifers - I'm pro-choice. Not your body, not your choice, so bug off. 
+- Fake claimers - You aren't a psychiatrist and don't know their actual symptoms. You're causing more harm than good. 
+- Lentotally/Miniladd/Callmecarlson/Spoctor fans - Get out. I usually never bother anyone for their interests, but Lentotally, Miniladd, Callmecarlson, and Spoctor (more recently) all have been proven pedophiles/groomers. 
+- Andrew Tate fans - I don't think I have to explain myself-
+☆ Basic DNI
+☆ Dave and Bambi fans (You can int I guess but I'm gonna be really cautious and uncomfy if idk you already)
+☆ If you genderbend characters (I'm trans it just makes me really uncomfortable)
+☆ If you run the risk of forming an alter of someone elses characters (I don't have an issue with DID I just self project on my characters so please don't kin them or anything)
+☆ If you harrass others for hoarding characters. hoarding is an actual disorder.
+- General DNI
+- Proshipper / "anti-anti" / Lolicons / Comshipper n whatever, get out idgaf what label u use.
+- Truscum / Transmed / TERF / Exclusionist / dont support neoprns, same as above.
+- Radinclus / "mspec" lesbians or gays
+- U support anyone/thing on this list even if you're not one of them
+- Zionist, "Neutral" or two-state solution supporter, pro-russia, pro-war
+- You use, "make" or otherwise support AI "art" (ew)
+- Please do not draw this/STAY AWAY
+- NSFW of minors
+- Pedophilia
+- Toxic ships ^ with above points^
+- Triggering themes with sonas 
+- Don't copy designs of any character
+- Don't favorite sonas. It just makes me uncomfy :)
+- PROSHIP/anything related. iF it helped I wouldn't have had to go thru therapy sillies & be told by professionals the harm it does <3
+- Zoo/feral NSFW artists
+- People who sexualize people based on body types alone. (Big breasts, fat people ECT.) 
+- Support my r@pist and his friends (can DM if you don't know ) @hive8atch & @irlmarkheathcliff on tiktok since they change their users on here bc they creeps and don't wanna be known }:p
+- Support my toxic exes in gen,, 
+- Support anyone who groomed me,,/ other bc you're gross if you do that tf?!
+- Basic DNI criteria, if you fetishize: Trans men, being obsese/fat, women for just existing. And furry/feral NSFW artists please dni, furry/feral nsfw makes me extremely uncomfortable. Also piss off if you're here just to start shit lol, just block and move on. You are not welcome on my profile, please bug off. 
+- I feel stupid writing this but if you are an extreme fangirl/fanboy of Maxie please do not interact I don't know why it makes me so uncomfortable, please refrain from interacting, it is nothing personal, it just makes me uncomfortable, please respect my wishes.
+- Please do not interact if you support Palworld! It is an objectively garbage game that has completely ripped from pokemon! And especially do not interact if you think it will replace pokemon and run it to the dirt! Go ahead and block me! I don't want to interact with you anyways! Funny people are saying it will replace pokemon when it quite literally steals so much from pokemon!
+- you're abelist, you romanticize mental illnesses, you support Autism Speaks or believe vaccines cause Autism / think being on the spectrum is bad or use "Autistic" as a slur, you're LGBTQ+phobic (including Panphobic, Acephobic, and Arophobic), you're racist, you're fatphobic, you're classist, you're an exclusionist, you're a TERF / SWERF, you're xenophobic, you're part of Nazi / KKK / white supremacist groups or support them, you use slurs that you have no right to reclaim, you're sexist / misogynistic, you're against sex workers, you use sexual assault / rape as a joke, you use suicide as a joke (unless you're talking about it to cope!), you're antisemitic, you're against BLM or ACAB, you support Trump / MAGA / Blue Lives Matter / All Lives Matter, you deny climate change, you are against masks / vaccinations, you are against gun control, you use your religion to hate on or harm other groups of people, you're pro life / anti abortion, / pro forced birth, you abuse animals, you're pro PETA, you trophy hunt / think trophy hunting is okay, you like and / or draw CP or feral NSFW content, you're a zoophile / support them, you're a MAP / NOMAP / pedophile or support them.
+- Basic DNI criteria.
+- Anyone over 25. I am much younger than you and you have no business trying to befriend me.
+- NSFW accounts. I cannot express how much i genuinely do not want to be exposed to that content, it is not personal but please leave me alone if your main consumed/created media is not for minors.
+- Blacklisted Individuals. Don't reach out to me for an appeal nor contact my mutuals in reference to me.
+- You're a homophobe, transphobe, racist, etc.
+- Pr0ship, l0licon, sh0tacon, p3do or other weird stuff like that 
+- Under 13
+- If you support or create AI "art", or if you call yourself an "AI artist"
+- Basic DNI criteria, just dni if you're a bad person basically. 
+- basic DNI criteria (racist, homophobic, terf, transmed, gender critical, etc.)
+- under 16
+- identify as a proshipper/neutral
+- fan of problematic media, such as south park, attack on titan, hazbin hotel, d:bh, fnf, mogeko etc.
+- fan of twst, enstars, or idv
+- believe in or support endogenic systems
+- are a pedophile, or enjoy anything loli, or sexual age play. {age play and regression are not the same thing !! regressors, you're safe here ^^}. 
+- are a zoophile, or condone sexual feral art, or beastiality. art is a reflection of the artist; if you get off to it, then there's a blur between "reality and fiction".
+- glorify psychopaths, irl serial killers, murderers, etc. personally, my big sister has the world's largest horror collection, so being die hard fans of movie slashers is fine, but glorifying and simping for people like dahmer, gacey, the night stalker, columbine, etc. is sickening. stay as far away from me as possible.
+- are homophobic, transphobic, truscum/transmed, TERFs/SWERFs/TEHMs/TIRFs, racist, ablist, or xenophobic. keep your hate away from me.
+- support trump, desantis, or any far right and hate spreading conservative politician.
+- are a russian or north korean sympathizer {meaning you agree with the method their leaders take to run their countries} and you support the propaganda that comes out of these countries. this includes american dubbed cartoons, it makes no difference.
+- support nfts or any form of cryptocurrency.
+- {your} profile has any gross fetishes or themes; i'm just really not interested in all of that :/
+- {your} profile is extremely bright and has flashing colours; i have very very poor eyesight, and bright colours and flashing gifs and images ache my eyes and can give me migraines.
+- are a under 16. as i've grown i've found it increasingly hard to interact with younger folks. clearly, if we're friends and know each other, it's much less a worry !! but i'd pref if any minors i don't know to stay away.
+- Nsfw artist (i am a minor) 
+- Draw non cartoony/ heavy gore (im very emotional and seeing blood can make me light headed in large quantitys)
+- Dream Stans *
+- K-Pop Stans*
+- The Obvious few (Racist, Sexist, Ableist, Homophobic, Transphobic, Ect)
+- Fetishes, (this is a general one if you bring up fetishes DNI, if you have them and dont share them to me you're fine)
+- Please keep in mind I am at the age of 16, currently a minor, and would suggest you dni if this makes you uncomfortable. I am mature for my age, but nevertheless would rather not make anyone uncomfortable. You may be any age to interact with me, but I would prefer if you are 20+ that you keep it at business conversation only. If your page consists of nsfw or anything along those lines, I ask that you do not send a link to it as I would rather not see that. Anything light is fine by me, so long as it’s not consisting of sexualization
+- If you are or support feral nsfw, pedophilic behavior/actions, slurs, racism, etc. literally dni. Do not make an attempt, I am not appreciative of such hate or disgusting actions and will not tolerate it being brought around me as I am trying to keep this a comfortable area. Failure to follow what I am asking will result in a block and likely a blacklist
+- PLEASE DNI IF YOU KIN FUTABA SAKURA PLEASE PLEASE IT MAKES ME SO UNCOMFORTABLE SINCE I AM FUTABA IRL 
+- General dni criteria(racist,ableist,homophobic,etc.)
+- If you hate persona 5 (that's my comfort series)
+- You are here to discuss proship/antiship discourse I don't care im just here to draw
+- Your fictional other is /you simp for  a COD character (especially ghost, it makes me uncomfortable bc I associate COD with my brother :/) 
+- You are here to talk politics
+- You kin real people (doesn't count characters played by real people)
+- You fetishize gay/lesbian/trans people, I'm literally a lesbian
+- Don't believe in mental health awareness .
+- Vomit [unknown new username also known as DrSylveon] : genuinely gross person, very sexual as a minor
+- @Kabi-chu- I do not wish to interact with her, makes me super uncomfy drew porn as a minor and looked at realistic pokemon porn
+- Bloodtuna- "neutral on LGBT" bro stfu you should just support the lgbtq community what are we hurting. Also putting "If you're anti Cis-Het" in your dni, acting as if people are actually anti Cis-Het. Get outta here.
+- basic dni criteria, you should know what i'm referring to
+- you intend to give me criticism on anything! it's on my do not list, please respect that
+- toxic/problematic behavior
+- joked about serious stuff and making a big deal out of something that isnt your own business (satire is no excuse)
+- harassment or bullying
+- art theft/char theft
+- if you have any problem with people and their sensitivities towards triggering comments/jokes/instigations>not having the common courtesy to move chats to private chats if inappropriate for public chats, unless its illegal
+- if you have any problem with people associating/identifying as gender/sexuality, real people/animals, fictional people/animals, creatures, words
+- if you have any problem minding your own business, I'm here to help but I'm not here to babysit adults so start acting like one
+- use ai art unethically 
+- dsmp fan or you support dream
+- basic dni criteria, homophobic, transphobic, racist, etc etc...
+- support nfts or ai art
+- -13
+- when i mean dni i mean no entering raffles, offering, etc. just please leave my profile lmao
+- proshippers
+- basic dni criteria (no creeps, bigots, homphobes, transphobes, you know the drill!! get outta here!!!!)
+- I also don't wanna interact with anyone who supports weird or controversial things >:(
+- zoos, pedos, pretty much everyone else who falls into that category of disgusting shit
+- homophobes, transphobes, racists, bigots, anyone against neopronouns/xenogenders
+- anyone with a w*ndigo character (cultural appropriation)
+- people who think that using ai/tracing/making nfts is art
+- harry potter fans, hazbin/helluva fans, dsmp fans, homestuckies (personal annoyance)
+- Proshippers !! Please stay in your musty little corner of the internet!!! Do not come over here!
+- Bigots in general. I doubt anyone who is a bigot will really listen to my dni, but you never know, so I'll put it in here anyway. If you are transphobic, homophobic, racist, sexist, ect. You are very much not welcome here.
+- People who say "smash" to animals or children (i,e pedophiles and zoophiles. get off of my profile pretty please)
+- If you are in the Countryhumans fandom. I do not CARE if you only sometimes draw them, or you just enjoy the youtube videos, or whatever. If you are in or support the community, DNI.
+- If you're Racist, Ableist, Lgbtphobic, mean people in general, people who secretly hate me or something about me...GOD haters (But i do respect people who are religious as long as they're not harassers) Furries that generally are horny/F3tish obssessed/WEIRD. Misogynists/Misanthropes, People who promote bad/Really stupid/Worst trends.
+- interact if you're under 16
+- draw my OCs without asking me first. don't worry too much, I'll almost always say yes, I'd just like a heads-up first ^^ (unless you're a friend of mine, you guys are okay! <3)
+- offer on OCs not in my UFO/UFT folder. if you're not sure if an OC is for sale, you can always ask!
+- steal, colorpick, or rp with my OCs
+- use any of my art as NFTs, even if it's a commission you've bought from me
+
+# byf
+- I'm a minor, so keep that in mind when interacting !! I'm also not very comfortable with ppl over 25 interacting with me :/
+- I also swear a LOT and my art features a lot of it too, lmk if you don't want me to swear when interacting with ya, it's no problem :D
+- My art also features some VERY small sexual jokes (like haha booby haha pp), but no outright nsfw (ew), as I'm ace and find sex to be a joke and occasionally get genuinely surprised when I remember it's a real thing. The same goes for some drug related content, though it's usually limited to bad weed jokes
+- I often have a hard time figuring out what people mean, so please be clear heh
+- I tend to forget putting warnings on my characters, and while I am in the middle of fixing that, just be warned!
+- I use tone indicators sometimes! If you don't like tone indicators i'll try not to use em when interacting, just tell me first <3
+- I often upload a lot of pictures at a time (mostly old art when I find it) In the same vein as that, sometimes I go a while without drawing. 
+That's because I'm busy a lot, plus sometimes it's a little hard on my arm/wrist/back.
+- I am currently hyperfixated on Omori! If you are not okay with me talking about it, please let me know! I completely understand if the themes aren't for all.
+- I am okay with offers on almost all of my OC's, even if they aren't in the UFT folder. Check the description of the folder a character is in if you are interested in offering!
+- I type “professionally” most of the time. 
+- I am a busy man with a lot of outside responsibilities. If you always expect a response to comments left on my page or characters then please do not comment at all, it’s likely I won’t reply for a while/at all (especially if you left an offer that isn’t what I’m looking for).
+- I don’t usually use tone indicators. I would prefer you not use tone indicators when speaking to me unless your tone is legitimately unclear. I find them infantilizing.
+- I don’t do pings on my characters. If you ask for a ping you will get your comment deleted, and may be blocked.
+- I use the word "femboy" to describe myself AND my ocs btw, if you're uncomfortable with me using that word to describe your ocs please do said so ! I don't want to make you uncomfortable.
+- Don't put my NFS/NFO characters in your dreamie folders, unless decision changes, i will never give them away.
+- Don't compare my characters or tell me my characters are similar to any other characters please. i am literally begging you.
+- Do not attempt to befriend me in any ways if you're a minor, interacting/following/commenting/favorite is fine but wanting to be friends is off limit. I'm just not comfortable with minors. (unless we've been friends before/you're here for my adopts)
+- Don't send NSFW to me without asking me first, it's weird and makes me uncomfortable so don't do that.
+- I do not censor anything on my profile. 
+- My art can contain, blood, gore, suggestive themes, open self-harm, artistic nudity, etc. My art is for a mature audience so please only interact if you’re not bothered seeing those subjects.
+- I block people easily when uncomfortable. I am willing to explain sometimes but for the vast majority of the time I can't explain any more than other than 'personal reasons'! most of the time it's due to my anxiety and/or triggers being touched! sometimes even someone having a single character with themes I am uncomfy with can make me block them.
+- in conversation/chats/dms, I may request a topic change or an image/gif be removed from the chat! please listen to this ^^'
+- I prefer short conversations (it's an anxiety thing), so don't be offended if I say I have to go and you see me active somewhere else.
+- I default to they/them if I am unsure of pronouns! I correct myself/change once I am aware of pronouns, but if the they/them default is something that upsets you it's best you don't follow/interact!!
+- generally I don't require tone indicators but they are nice to have sometimes! ^^ so if you like to use them, feel free to continue with me, but if you don't use them, don't worry about using them!
+- I don't enjoy jokes that make fun of people/me, even if they're 'friendly' mocking or 'friendly' name calling. please don't use them around me! ^^"
+- I get anxiety around watermarks/credit! I like my work to be watermarked and credited so please understand if I don't want to send an unwatermarked or dm asking for credit somewhere.
+- if you change your pfp/icon to something related to anything on the list below, I may stop talking to you/interacting with you until you change it- I won't ask for you to change it cos like-- it's up to you, but if it makes me uncomfortable I'll probs stay away ^^'
